@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @NEXOS123
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning to make mobile aps
-- 💞️ I’m looking to collaborate on www.db-programs.tk
 - 📫 How to reach me cant do that :)
+- ✔ Proud owner of Vedoo
